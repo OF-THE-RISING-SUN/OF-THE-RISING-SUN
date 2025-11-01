@@ -1,8 +1,8 @@
+<div align="center">
 ![1000003659](https://github.com/user-attachments/assets/ce153f87-bf05-4727-877e-8fc1146fd700)
 
 
 
-<div align="center">
 
  ✙ ｡ᴗ ᴗ )⠀ 𝐌𝐢𝐥𝐢𝐭𝐢𝐚𝐒𝐲𝐬𝐭𝐞𝐦   ︵︵                              
 -----
