@@ -1,4 +1,5 @@
-![1000003659](https://github.com/user-attachments/assets/6b0ac950-a67d-46ce-982c-87610b3a4e7c)
+![1000003659](https://github.com/user-attachments/assets/ce153f87-bf05-4727-877e-8fc1146fd700)
+
 
 
 <div align="center">
@@ -7,7 +8,7 @@
 -----
  ˙ ✚  HOSTS + collective name ﹕  Alan or Mish  ꣑୧  / no pony inspo!
 
-✧ . 𓋰 .  discord - (ask 2 add) :: orangesex  𐙚  ︵︵
+✧ . 𓋰 .  discord - (ask 2 add) :: the.risingsun  𐙚  ︵︵
 
 ㅤ◟ ͜  ꣓   —  #   we block freely + pls spam follow! 
 
@@ -19,6 +20,9 @@
 
 
 ![1000003656](https://github.com/user-attachments/assets/c47c28f4-5c5e-4b2f-bda0-918ae4544f0d)![1000003657](https://github.com/user-attachments/assets/06e3c381-b928-4c9a-90d3-125792bed224)![1000003658](https://github.com/user-attachments/assets/d3fec00f-e03d-4e4d-a25c-616145329bd9)
+![1000003656](https://github.com/user-attachments/assets/1eee29fe-01b4-467d-9519-1150709d3c65)![1000003657](https://github.com/user-attachments/assets/04c00fca-5297-41d2-b990-d6cb13b7a8cf)![1000003656](https://github.com/user-attachments/assets/7c518333-05ee-4927-975d-61590bb2019e)
+
+
 
 
 
