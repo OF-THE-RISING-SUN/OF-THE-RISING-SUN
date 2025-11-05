@@ -13,7 +13,7 @@
 
 ㅤ◟ ͜  ꣓   —  #   we block freely + pls spam follow! 
 
- ❀   𓎟𓎟 “ Do not pray anymore; the sky is deaf. “
+ ❀   𓎟𓎟 “ I hope you never know, dear boy! “
 
 
 
