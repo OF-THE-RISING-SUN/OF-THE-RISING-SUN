@@ -9,7 +9,7 @@
 -----
  ˙ ✚  HOSTS + collective name ﹕  Alan or Mish  ꣑୧  / no pony inspo!
 
-✧ . 𓋰 .  discord - (ask 2 add) :: the.risingsun  𐙚  ︵︵
+✧ . 𓋰 .  discord - (ask 2 add) :: corruptcarry  𐙚  ︵︵
 
 ㅤ◟ ͜  ꣓   —  #   we block freely + pls spam follow! 
 
